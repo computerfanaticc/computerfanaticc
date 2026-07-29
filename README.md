@@ -1,5 +1,14 @@
+https://litter.catbox.moe/drph14rzbdje3muv.png
 
 
+
+
+
+
+
+
+
+transferring shi dont mind me
 <!--
 **computerfanaticc/computerfanaticc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
